@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @ghostmigi
-- 👀 I’m interested in IT
